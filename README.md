@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Emmajoeetti
+- 👀 I’m interested in learning and developing new skills
+- 🌱 I’m currently learning product designing
+- 💞️ I’m looking to collaborate on projects as subject refers
+- 📫 How to reach me (https://www.linkedin.com/in/emmanuel-etti-665687123/)
